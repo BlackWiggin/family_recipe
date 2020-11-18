@@ -1,4 +1,4 @@
-# Family secrest recipes
+# Perez'z Family secrest recipes
 
 Set of recipes as given by my grandma.
 
